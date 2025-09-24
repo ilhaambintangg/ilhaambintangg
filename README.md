@@ -1,5 +1,4 @@
-# 💫 About Me:
-Hallo Saya Muhammad Ilham Bintang Faiz Efendi
+# Hallo Saya Muhammad Ilham Bintang Faiz Efendi👋
 
 
 ## 🌐 Socials:
